@@ -1,8 +1,7 @@
-## **ス Decaysystem**
-18, gamehacking & malware  
-uninteresting and unskilled  
+## **ス Haskinn**
+18, all things cool but moderately unethical
 
-✈️ @decaysys  
-👾 decay#1391  
+
+👾 haskinn#5630
 wickedinception®  
  
